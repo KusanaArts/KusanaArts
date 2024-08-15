@@ -2,7 +2,7 @@
 I splashly do anything .
 </p>
 
-I'm a cheerful! maybe a lil bit MEAN? :0
+I'm a cheerful AND SILLY!! maybe a lil MEAN? :0
 
 <p align="right">
 I like editing videoszz
