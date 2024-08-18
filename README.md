@@ -7,3 +7,10 @@
 
 ![358905632-ff732f68-35f6-4aa9-83d1-47c041e214ab](https://github.com/user-attachments/assets/8b2e473a-d52c-4d36-beab-4a6bd945d8b7)
 ![358905623-69b46393-578c-4fe8-a906-caa669948829 (1)](https://github.com/user-attachments/assets/bacd1923-c914-4538-ac8b-3b407078aa0f)
+
+# ALSO. TY MY LIL BESTIES/KIDDOS FOR DRAWING ME!! I REALLY APPRECIATE IT, AND IT'S SO CUTEE!!
+
+![Untitled1_20240816144920](https://github.com/user-attachments/assets/ebddca01-3717-46fe-acda-f6bb312605f9)
+![Screenshot_2024_0818_234956](https://github.com/user-attachments/assets/07ce2fa2-5195-4cd6-ba5e-7caa3fe4a283)
+![IMG_20240818_131700](https://github.com/user-attachments/assets/b0ff02ce-ed9e-4cac-b923-54bc7f4e1887)
+![Screenshot_2024_0818_234938](https://github.com/user-attachments/assets/8f46ae4c-ebf6-4a7a-92fe-6d19607e3902)
