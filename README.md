@@ -13,4 +13,8 @@
 </p>
 <br/><br/><br/>
 
+![](https://komarev.com/ghpvc/KusanaArts&color=ccc0e8)
+![](https://komarev.com/ghpvc/?username=KusanaArts&label=𝐖𝐞𝐥𝐜𝐨𝐦𝐞!&color=87cefa)
+<br/><br/><br/>
 ![Untitled542_20240821005400](https://github.com/user-attachments/assets/923b56ce-8048-401c-bcf1-2826ff3295db)
+
