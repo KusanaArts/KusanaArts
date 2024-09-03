@@ -20,6 +20,8 @@
 
 ------------------
 
+### I mean? I was were afk doing something. and this person who just came over me that had a clover and this happens 💀💀
+
 ![Screenshot_2024_0903_133105](https://github.com/user-attachments/assets/429f276b-60e9-4910-9c60-24435557e0a7)
 ![Screenshot_2024_0903_133129](https://github.com/user-attachments/assets/c37d04c8-81e6-470b-ade3-a7c0784cb37c)
 ![Screenshot_2024_0903_133142](https://github.com/user-attachments/assets/66a2c0e0-4cc8-4741-828e-ffb795c0cb8c)
