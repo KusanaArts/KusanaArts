@@ -17,16 +17,3 @@
 ![](https://komarev.com/ghpvc/?username=KusanaArts&label=𝐖𝐞𝐥𝐜𝐨𝐦𝐞!&color=87cefa)
 <br/><br/><br/>
 ![Untitled542_20240821005400](https://github.com/user-attachments/assets/923b56ce-8048-401c-bcf1-2826ff3295db)
-
-------------------
-
-# This person is ew ew 
-
-![Screenshot_2024_0903_133105](https://github.com/user-attachments/assets/429f276b-60e9-4910-9c60-24435557e0a7)
-![Screenshot_2024_0903_133129](https://github.com/user-attachments/assets/c37d04c8-81e6-470b-ade3-a7c0784cb37c)
-![Screenshot_2024_0903_133142](https://github.com/user-attachments/assets/66a2c0e0-4cc8-4741-828e-ffb795c0cb8c)
-![Screenshot_2024_0903_133209](https://github.com/user-attachments/assets/3eb50253-948e-439f-b6fb-e1038bcd9a27)
-![Screenshot_2024_0903_133233](https://github.com/user-attachments/assets/999f3aad-a60f-412c-986d-65ee7f0c6eb5)
-![Screenshot_2024_0903_133255](https://github.com/user-attachments/assets/58fa665a-a50b-4bcc-a6ae-8531b1e8b866)
-<br/><br/><br/>
-
