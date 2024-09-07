@@ -1,23 +1,13 @@
-![Untitled542_20240821005413](https://github.com/user-attachments/assets/c4d61e05-e6f0-46e5-92e4-87feb03c8599)
-
-<br/><br/><br/>
 <p align="center">
-𝐂𝐚𝐥𝐥 𝐦𝐞 "𝐍𝐞𝐧𝐞" 𝐨𝐫 𝐀𝐧𝐲𝐭𝐡𝐢𝐧𝐠 𝐲𝐨𝐮'𝐝 𝐥𝐢𝐤𝐞 𝐭𝐨 𝐜𝐚𝐥𝐥 𝐦𝐞! 
+  <img width="1000" height="200" src="https://cdn.discordapp.com/attachments/1278730328441225229/1280601333107392534/Untitled569_20240904035152.png?ex=66dd49ae&is=66dbf82e&hm=6322f4d810f2e4f570d7dc46b06a596e2c3b8869d72ae1a4d3c57efb179052db&59ad107eff753e68ea5cf63122daf2daa9863b6ce2f1ea9bfad92a88528&">
 </p>
-<br/><br/><br/>
+<br/br><br/br><br/br>
 
-![Untitled545_20240821004006](https://github.com/user-attachments/assets/f4804e01-b3e9-4e40-995e-de25a7711d22)
-<br/><br/><br/>
-╰┈➤ [𝙍𝙀𝙏𝙍𝙊𝙎𝙋𝙍𝙄𝙉𝙂](https://retrospring.net/@Kusanasgi) <p align="right">
-𝙎𝙖𝙮 𝙨𝙤𝙢𝙚𝙩𝙝𝙞𝙣𝙜 𝙮𝙤𝙪 𝙡𝙞𝙠𝙚!
+<p align="center">
+  <img width="1000" height="600" src="https://cdn.discordapp.com/attachments/1278730328441225229/1280596904819953695/Untitled568_20240904033359.png?ex=66dd458e&is=66dbf40e&hm=b4b5f59ad107eff753e68ea5cf63122daf2daa9863b6ce2f1ea9bfad92a88528&">
 </p>
+<br/br><br/br><br/br>
 
-╰┈➤ [𝙍𝙀𝙉𝙏𝙍𝙔](https://rentry.co/KusanaArts) <p align="right">
-𝙄'𝙡𝙡 𝙖𝙙𝙙 "𝙡𝙤𝙫𝙚𝙢𝙖𝙞𝙡𝙨" 𝙖𝙣𝙙 "𝙤𝙩𝙝𝙚𝙧𝙨" 𝙩𝙤𝙤! 𝙄 𝙜𝙤𝙩 𝙡𝙖𝙯𝙮 😭
+<p align="center">
+  <img width="1000" height="200" src="https://cdn.discordapp.com/attachments/1278730328441225229/1280601345283457055/Untitled569_20240904035156.png?ex=66dd49b1&is=66dbf831&hm=585c7a3a632cff3ccb4a6c0f6caa3f12bb1745e69282c13d8696c4f864b2a65b&4d810f2e4f570d7dc46b06a596e2c3b8869d72ae1a4d3c57efb179052db&59ad107eff753e68ea5cf63122daf2daa9863b6ce2f1ea9bfad92a88528&">
 </p>
-<br/><br/><br/>
-
-![](https://komarev.com/ghpvc/KusanaArts&color=ccc0e8)
-![](https://komarev.com/ghpvc/?username=KusanaArts&label=𝐖𝐞𝐥𝐜𝐨𝐦𝐞!&color=87cefa)
-<br/><br/><br/>
-![Untitled542_20240821005400](https://github.com/user-attachments/assets/923b56ce-8048-401c-bcf1-2826ff3295db)
